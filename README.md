@@ -127,4 +127,4 @@ Contact me
 If you have any questions or suggestions about my Privacy Policy, do not hesitate to
 contact me.
 
-fugfil(at)gmail(dot)com
+fugful(at)gmail(dot)com
